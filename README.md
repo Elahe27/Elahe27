@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Elahe27
-- 👀 I’m interested in #Music, #Sport, #bitcoin, #Crypto & #Forex trading
+- 👀 I’m interested in #Music, #Sport, #Bitcoin, #Crypto & #Forex trading
 
 
 <!---
